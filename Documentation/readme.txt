@@ -1,1 +1,2 @@
 Stjepan Puača
+Coronavirus Party
